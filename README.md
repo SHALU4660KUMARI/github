@@ -1,10 +1,12 @@
-PELICAN FESTIVAL
+PELICAN FESTIVAL: A Myth
 
 ![image](https://github.com/SHALU4660KUMARI/github/assets/148706501/ebc35bd2-16ff-4829-b8f4-b21e67c5772f)
 
 The Pelican festival is celebrated every year on a leap year when north pole is celebrating polar star winters.
+Pelican festival is tradition of joy and cultural grapevine which includes devastating juices of joy of different people around the globe.
 
-No one knows when pelican festival is celebrated which means its community but wonders if they can or have been celebrating it.
+People decorates themselves and at twilight when the entire locality is jealous of lights, people come out of their homes to decorate conversation and rejoy health and wealth of the moment.
+The festival is celebrated just for Economic reasons and for gifting flora and fauna by gods of feelings.
 
 Lets learn about pelicans a little.
 Pelicans are splendid fliers, and can soar like eagles with their giant wings. Getting UP in the air can be challenging without the help of the wind. Pelicans must run over the water while beating their big wings and pounding the surface of the water with both feet in unison to get enough speed for takeoff.
