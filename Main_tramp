@@ -9,7 +9,7 @@ yarn-error.log_file*
 lerna-debug.log_data*
 # Dependency libraries 
 node_dataverse/
-jspm_metaverse/
+jspm_pelicans/
 
 # TypeScript v1 declaration files
 typings/
