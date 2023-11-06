@@ -16,6 +16,9 @@ It is easy to identify pelicans, because they are one of the only birds with a p
 
 
 
-End in Festivals
-End in cultural Farewell
-Happy pelican Festival 
+End in Festivals,
+End in cultural Farewell,
+Happy pelican Festival.
+
+
+
