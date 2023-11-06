@@ -14,6 +14,6 @@ Along with the giant pouch, pelicans are a large bird with short legs, and they 
 
 It is easy to identify pelicans, because they are one of the only birds with a pouch under their bill. There is a famous limerick that begins, “A wonderful bird is the pelican, his bill can hold more than his ‘belican’….” This enormous, naked skin pouch hangs from the lower half of the pelican's long, straight bill, hooked at the tip. The bird uses this pouch to catch fish and, as the limerick says, its bill does indeed hold more than its "belly can"! The unique pouch is also helpful in warm weather. While roosting in the hot sun, pelicans open their bill and flap the pouch to cool off.
 
-![Uploading image.
+
 
 
